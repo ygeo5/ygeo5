@@ -1,4 +1,4 @@
-https://mininxd.my.id/
+![GIF](https://mininxd.my.id/)
 hi
 
 <!---
