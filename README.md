@@ -1,4 +1,4 @@
-![GIF](https://giphy.com/gifs/kawaii-aegyo-4QxQgWZHbeYwM)
+![GIF](https://media.giphy.com/media/4QxQgWZHbeYwM/giphy.gif)
 hi
 
 <!---
