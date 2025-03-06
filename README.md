@@ -1,4 +1,4 @@
-![GIF](https://mininxd.my.id/)
+![GIF](https://giphy.com/gifs/kawaii-aegyo-4QxQgWZHbeYwM)
 hi
 
 <!---
